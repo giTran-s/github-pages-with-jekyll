@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Side Gig 101
 
-I'm glad you are here. I plan to talk about ...
+How bad do you want it?
